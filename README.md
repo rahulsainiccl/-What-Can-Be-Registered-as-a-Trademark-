@@ -1,1 +1,1 @@
-# -What-Can-Be-Registered-as-a-Trademark-
+Why is trademark registration important
